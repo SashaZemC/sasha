@@ -1,2 +1,0 @@
-# sasha
-ya vas naydu
